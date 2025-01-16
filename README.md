@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+I'm currently studying at Linnéuniversitetet in Sweden. 🏫
+A fact about me is that I'm super cracked at video games. 👾🎮
+
+He/him, by the way. 😃
